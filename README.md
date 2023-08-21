@@ -1,1 +1,1 @@
-# JOCER
+JOCER: Journal of Civic Education Research is a journal published by CV Tirta Pustaka Press. This journal is a scientific and professional communication medium for researchers around the world to publish their research results in the field of civic education and learning. We seek responsive manuscripts that are able to make theoretical and empirical contributions to the development of civic studies and civic education in an interdisciplinary perspective covering the fields of ideology, politics, law, social, culture, education, history, and economics.
